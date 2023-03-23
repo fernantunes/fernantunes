@@ -13,5 +13,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about Marketing
 - 📫 How to reach me: www.linkedin.com/in/antunes
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm possibly older than you :)
-
+- ⚡ Fun fact: I took a wrong plane to a city 1200km away from my destination.
